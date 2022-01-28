@@ -19,7 +19,6 @@ Absolutely. When someone slips or trips and falls, there's a good chance it was 
 <h3>For more information, visit us today!</h2>
 <br></br>
 
-
 Name: Sidhu Personal Injury Lawyers Edmonton
 
 Address: 10050–112 Street NW Suite 904, Edmonton, AB, T5K 2J1
