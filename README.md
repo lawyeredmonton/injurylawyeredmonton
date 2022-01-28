@@ -17,8 +17,9 @@ Also, the lawyer should be around to take questions and address your immediate c
 Absolutely. When someone slips or trips and falls, there's a good chance it was due to a hazard or obstacle that shouldn't have been there. If this is the case, the property owner (or business) may be held liable. That means you have the legal right to sue for damages incurred as a result of your slip and fall.
 <br></br>
 <h3>For more information, visit us today!</h2>
-<br></br>
+
 Name: Sidhu Personal Injury Lawyers Edmonton
+
 
 Address: 10050–112 Street NW Suite 904, Edmonton, AB, T5K 2J1
 
