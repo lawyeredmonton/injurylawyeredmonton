@@ -17,12 +17,18 @@ A personal injury attorney who specializes in burn injuries can explain to the v
 This means if the victim/plaintiff voluntarily shares photos, videos or other content on the Internet, it might undermine claims of injury or psychological stress, which can be used against that person in trial. Because of these and other factors, the victim should engage an <a href="https://g.page/sidhu-personal-injury-lawyers-ed"> experienced burn injury lawyer</a>.
 
 Attorneys with experience in burn injuries will choose qualified expert witnesses, construct a strong case strategy and will guide the victim-plaintiff to eliminate extraneous factors (such as Internet postings) that have the potential to undermine their litigation.
+<br></br>
 
-<h3>For more information, visit us today!<h/h3>
+<h3>For more information, visit us today!</h3>
   
   
-Name: Sidhu Personal Injury Lawyers Edmonton</h2>
+Name: Sidhu Personal Injury Lawyers Edmonton
+
 Address: 10050–112 Street NW Suite 904, Edmonton, AB, T5K 2J1
+
 Phone: (780) 666–0134
+
 Website: www.injury-lawyer-edmonton.com
+
 GMB: https://g.page/sidhu-personal-injury-lawyers-ed
+
